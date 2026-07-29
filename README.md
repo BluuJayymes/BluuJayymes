@@ -1,4 +1,4 @@
-this is a test bear w me..
+HEYA !! I'm James, also known as Jay by friends and moots ! PLEASE sign my ata or send me some gimmicks on Strawpage it means a lot :) Strawpage comms are open - feel free to ask on Ponytown or via Atabook <3
 
 <!--
 **BluuJayymes/BluuJayymes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
