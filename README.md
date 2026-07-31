@@ -8,9 +8,7 @@ If you've seen me around, __please__ consider signing my Atabook or sending me s
 <br>
 <br>
 <p align=center> 
-<img width="150" height="20" alt="h6" src="https://github.com/user-attachments/assets/7f460af5-970c-4678-bb7b-7d0b09ca68c3" />  
- 𝐍𝐨𝐦𝐢𝐧𝐚𝐭𝐞𝐝 𝐓𝐇𝐄 '𝐂𝐨𝐧𝐯𝐢𝐜𝐭' 𝐨𝐟 𝐏𝐨𝐧𝐲 𝐓𝐨𝐰𝐧 
- <img width="150" height="20" alt="h6" src="https://github.com/user-attachments/assets/24e5ba2f-6c42-418f-8f21-d282796f005b" /> <br>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Milonga&weight=700&pause=1000&color=B80000&background=00000092&width=539&height=37&lines=!+Nominated+as+THE+Simon+%60Convict%60+of+Pony+Town+!+!" alt="Typing SVG" /></a>
  
 <p align=center> <img width="498" height="271" alt="markiplier-markiplier-typing" src="https://github.com/user-attachments/assets/1f0d3d69-739d-4164-952a-28a1e1af323f" /> <br>
 
