@@ -1,10 +1,5 @@
-**HEYA !!** <Br>
-I'm James, also known as Jay by friends and moots! <br>
-<br>
-If you've seen me around, __please__ consider signing my Atabook or sending me some gimmicks on Strawpage; it really means a lot, and you might even be featured in my __Gallery__ on sp ;p <br>
-<br>
 
-<br>
+reworking, stand by <br>
 <br>
 <br>
 <p align=center> 
