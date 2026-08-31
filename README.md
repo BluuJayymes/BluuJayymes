@@ -1,7 +1,7 @@
 
 <p align="center">
 
-<img  src="https://github.com/user-attachments/assets/55b90446-dc86-49f0-ac20-76539662d7ab" />
+
 <img  src="https://github.com/user-attachments/assets/9b94f725-d931-4114-af64-514bea833a6f" /><br>
 <br>
 <p dir=auto>
@@ -11,6 +11,7 @@
     <br>
  Jayce ` James ` Jay 
     <br>
+ ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
      <p align="left">
  <br>He/him - They/Them || Masc Terms Only.
     <br>
@@ -35,6 +36,7 @@ I LOVEE MY FRIENDS AND MOOTIES!!!
 <br>
 <table align="center"><th>
 <details><summary><sup><sub> ( </sub></sup> byi <sup><sub> )</sub></sup></summary>
+  ✦•······················•✦•······················•✦<br>
   <br>● FicKin - Doubles -iwec
   <br> ᴘʀᴇᴛᴛʏ ꜱᴇʟꜰ-ᴇxᴘʟᴀɴᴀᴛᴏʀʏ
   <br>● If you yume with any of my kins -iwc
@@ -46,9 +48,11 @@ I LOVEE MY FRIENDS AND MOOTIES!!!
   <br>● I free block; if you're blocked, then you put me off in some way
   <br> ᴅᴏɴ'ᴛ ʜᴀʀᴀꜱꜱ ᴍʏ ꜰʀɪᴇɴᴅꜱ ᴛᴏ ꜰɪɴᴅ ᴏᴜᴛ ᴡʜʏ ʏᴏᴜ'ʀᴇ ʙʟᴏᴄᴋᴇᴅ
   <br>
+  <br> ✦•······················•✦•······················•✦
   
 </details>
   <details><summary><sup><sub> [ </sub></sup> dni <sup><sub> ]</sub></sup></summary>
+    <br>  ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
     <br>●homophobes
     <br>●transphobes
     <br>●transmeds
@@ -62,7 +66,7 @@ I LOVEE MY FRIENDS AND MOOTIES!!!
     <br>●racists
     <br>●preds
     <br>●inconsiderate people
-    <br>
+    <br> ︶︶︶︶︶
 </details>
 </th></table>
 
