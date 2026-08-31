@@ -1,7 +1,5 @@
 
 <p align="center">
-
-
 <img  src="https://github.com/user-attachments/assets/9b94f725-d931-4114-af64-514bea833a6f" /><br>
 <br>
 <p dir=auto>
@@ -9,32 +7,26 @@
 <sup><sub></sub></sup>
   <p align="center">
     <br>
- Jayce ` James ` Jay 
-    <br>
+
  ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
-     <p align="left">
- <br>He/him - They/Them || Masc Terms Only.
-    <br>
+  
+
  <br>09.27.09 | 6teen
     <br>
  <br>Taken !! 01.01.25
     <br>
- <p align="left">
-I LOVEE MY FRIENDS AND MOOTIES!!!
     <br>
   <br> Sign my ata and sp ;p I try to check everyday 
    <br> so make sure to check back for a reply
     <br>
   <br> C+H is okay, but please ask first!
     <br>
-  <br> < HYENAS, SHARKS, BEARS, PUPPIES 3
-         <br>
-<sup><sub></sub></sup>
-</th></table> <br>
-<br>
 
-<br>
+<sup><sub></sub></sup><br>
+<br> 
+</th></table> <br>
 <table align="center"><th>
+  <img src="https://github.com/user-attachments/assets/39a41773-b185-4158-9441-c80cb6cb525f" >
 <details><summary><sup><sub> ( </sub></sup> byi <sup><sub> )</sub></sup></summary>
   ✦•······················•✦•······················•✦<br>
   <br>● FicKin - Doubles -iwec
@@ -68,15 +60,16 @@ I LOVEE MY FRIENDS AND MOOTIES!!!
     <br>●inconsiderate people
     <br> ︶︶︶︶︶
 </details>
+<img src="https://github.com/user-attachments/assets/e8eec0a9-54fd-4884-9e03-26853097327c" >
 </th></table>
 
-</p>
-  <br>
-  <br>
-  <br>
-<img  src="https://github.com/user-attachments/assets/30980322-f847-40b4-9ee1-257cd3369711" />
+
 <br>
- <p align="center">
+<br>
+<br>
+
+<br>
+<p align="center">
 <img width="99" height="56" alt="d42" src="https://github.com/user-attachments/assets/19f1aed6-5add-4ef5-890c-5be4f9077623" />   
 <img width="99" height="55" alt="d96" src="https://github.com/user-attachments/assets/d0673cc9-fe5a-4ddc-a539-d34a247a99b5" />   
-<img width="99" height="56" alt="d108" src="https://github.com/user-attachments/assets/0458920c-7ecf-4f9d-8ca7-37bbd25c1143" />   <br>
+<img width="99" height="56" alt="d108" src="https://github.com/user-attachments/assets/0458920c-7ecf-4f9d-8ca7-37bbd25c1143" /><br>
