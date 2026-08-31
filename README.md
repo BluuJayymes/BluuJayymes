@@ -34,7 +34,7 @@
     <br>●maga
     <br>●Ice supporters
     <br>●epstien trolls
-    <br>●natzi trolls
+    <br>●nazi trolls
     <br>●racists
     <br>●preds
     <br>●inconsiderate people
