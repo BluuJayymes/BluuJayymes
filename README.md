@@ -1,36 +1,11 @@
 
-<br>
-<p dir=auto>
-<table align="center"><th>
-<sup><sub></sub></sup>
-  <p align="center">
-    <br>
-
- ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨
-  
-
- <br>09.27.09 | 6teen
-    <br>
- <br>Taken !! 01.01.25
-    <br>
-    <br>
-  <br> Sign my ata and sp ;p I try to check everyday 
-   <br> so make sure to check back for a reply
-    <br>
-  <br> C+H is okay, but please ask first!
-    <br>
-
-<sup><sub></sub></sup><br>
-<br> 
-</th></table> <br>
-<br> 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/907f85a1-823c-49a6-9351-cc857d072d59" width="65%" height="auto" data-canonical-/>
 
 <br>
 <br>
 <table align="center"><th>
-<img src="https://github.com/user-attachments/assets/0e9e952b-af4c-4532-9841-0fc9d7457183" width="100%" height="auto" data-canonical- />
+
 
 <details><summary><sup><sub> ( </sub></sup> byi <sup><sub> )</sub></sup></summary>
   ✦•······················•✦•······················•✦<br>
@@ -65,9 +40,9 @@
     <br>●inconsiderate people
     <br> ︶︶︶︶︶
 </details>
-<img src="https://github.com/user-attachments/assets/33c82807-c48a-4d40-80b6-31d4b399144e" width="100%" height="auto" data-canonical- />
-
 </th></table>
+<br>
+ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎ 
 
 
 <br>
