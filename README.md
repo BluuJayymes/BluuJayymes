@@ -25,8 +25,13 @@
 <sup><sub></sub></sup><br>
 <br> 
 </th></table> <br>
+<br> 
+<img src="https://github.com/user-attachments/assets/907f85a1-823c-49a6-9351-cc857d072d59" />
+<br>
+<br>
 <table align="center"><th>
-  <img src="https://github.com/user-attachments/assets/39a41773-b185-4158-9441-c80cb6cb525f" >
+<img src="https://github.com/user-attachments/assets/0e9e952b-af4c-4532-9841-0fc9d7457183" width="100%" height="auto" data-canonical- />
+
 <details><summary><sup><sub> ( </sub></sup> byi <sup><sub> )</sub></sup></summary>
   ✦•······················•✦•······················•✦<br>
   <br>● FicKin - Doubles -iwec
@@ -60,7 +65,8 @@
     <br>●inconsiderate people
     <br> ︶︶︶︶︶
 </details>
-<img src="https://github.com/user-attachments/assets/e8eec0a9-54fd-4884-9e03-26853097327c" >
+<img src="https://github.com/user-attachments/assets/33c82807-c48a-4d40-80b6-31d4b399144e" width="100%" height="auto" data-canonical- />
+
 </th></table>
 
 
