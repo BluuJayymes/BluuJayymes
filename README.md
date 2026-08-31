@@ -1,6 +1,4 @@
 
-<p align="center">
-<img  src="https://github.com/user-attachments/assets/9b94f725-d931-4114-af64-514bea833a6f" /><br>
 <br>
 <p dir=auto>
 <table align="center"><th>
@@ -26,7 +24,9 @@
 <br> 
 </th></table> <br>
 <br> 
-<img src="https://github.com/user-attachments/assets/907f85a1-823c-49a6-9351-cc857d072d59" />
+<p align="center">
+<img src="https://github.com/user-attachments/assets/907f85a1-823c-49a6-9351-cc857d072d59" width="65%" height="auto" data-canonical-/>
+
 <br>
 <br>
 <table align="center"><th>
