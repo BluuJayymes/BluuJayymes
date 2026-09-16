@@ -1,49 +1,66 @@
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/907f85a1-823c-49a6-9351-cc857d072d59" width="65%" height="auto" data-canonical-/>
+<img src="https://github.com/user-attachments/assets/46b6877f-1603-4e4c-96be-52484a472c85"/>
 
 <br>
 <br>
+<p align="left">
+  <img src="https://github.com/user-attachments/assets/2433aa11-bd78-4f50-a2f7-7ef2ce27689d"  <width="162" height="162"/>
+ 
 <table align="center"><th>
 
+</details>
+<details><summary><sup><sub> ( </sub></sup> CLICK ME <sup><sub> )</sub></sup></summary>
 
-<details><summary><sup><sub> ( </sub></sup> byi <sup><sub> )</sub></sup></summary>
+  <details><summary><sup><sub> [ </sub></sup> byi <sup><sub> ]</sub></sup></summary>
+  
+  <p align= "left">
   ✦•······················•✦•······················•✦<br>
-  <br>● FicKin - Doubles -iwec
-  <br> ᴘʀᴇᴛᴛʏ ꜱᴇʟꜰ-ᴇxᴘʟᴀɴᴀᴛᴏʀʏ
+  <br>● I recommend you check out my strawpage(s) for more detailed info before you interact
   <br>● If you yume with any of my kins -iwc
-  <br> ɪ ᴅᴏɴ'ᴛ ᴍɪɴᴅ ᴛᴏᴏ ᴍᴜᴄʜ, ʙᴜᴛ ᴋᴇᴇᴘ ʏᴏᴜʀ ɢᴜꜱʜɪɴɢ ᴀʙᴏᴜᴛ ᴛʜᴇᴍ ᴛᴏ ᴀ ᴍɪɴɪᴍᴜᴍ ᴘʟꜱ
   <br>● -14 19+ -iwec 
-  <br> ᴋɪᴅꜱ ᴍᴀᴋᴇ ᴍᴇ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ - ᴀᴅᴜʟᴛꜱ ᴅᴏɴ'ᴛ ʙᴇ ᴡᴇɪʀᴅ
-  <br>● I'm a big believer in m̲i̲n̲d̲i̲n̲g̲ ̲y̲o̲u̲r̲ ̲o̲w̲n̲ ̲b̲u̲s̲i̲n̲e̲s̲s̲. 
-  <br> ɪ ᴅᴏɴ'ᴛ ᴄᴀʀᴇ ᴡʜᴀᴛ 'ᴋᴀɪ' ɪꜱ ɪɴᴛᴏ, ᴅᴏɴᴛ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ ᴀʙᴛ ɪᴛ
+  <br> ᴋɪᴅꜱ ᴍᴀᴋᴇ ᴍᴇ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ. - ᴀᴅᴜʟᴛꜱ, ᴅᴏɴ'ᴛ ʙᴇ ᴡᴇɪʀᴅ.
   <br>● I free block; if you're blocked, then you put me off in some way
   <br> ᴅᴏɴ'ᴛ ʜᴀʀᴀꜱꜱ ᴍʏ ꜰʀɪᴇɴᴅꜱ ᴛᴏ ꜰɪɴᴅ ᴏᴜᴛ ᴡʜʏ ʏᴏᴜ'ʀᴇ ʙʟᴏᴄᴋᴇᴅ
   <br>
   <br> ✦•······················•✦•······················•✦
-  
+  <br>
 </details>
+  
   <details><summary><sup><sub> [ </sub></sup> dni <sup><sub> ]</sub></sup></summary>
+      <p align="left">
     <br>  ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
-    <br>●homophobes
-    <br>●transphobes
-    <br>●transmeds
-    <br>●radq
-    <br>●LSP ENJOYERS
-    <br>●ThatMob fans
-    <br>●maga
-    <br>●Ice supporters
-    <br>●epstien trolls
-    <br>●nazi trolls
-    <br>●racists
-    <br>●preds
-    <br>●inconsiderate people
+    <br>●Homophobes
+    <br>●Transphobes
+    <br>●Transmeds
+    <br>●Radq
+    <br>●Maga/Ice supporters
+    <br>●Epstien trolls
+    <br>●Nazi trolls
+    <br>●Racists
+    <br>●Preds/MAPS
+    <br>●Inconsiderate people
+    <br>
+    <br>●LSP 
+    <br>●Wincest 
+    <br>●Hazbin Hotel
+    <br>●Helluva Boss
+    <br>●ThatMob Fandom
+    <br>●DSMP
+    <br>●MHA
+    <br> 
     <br> ︶︶︶︶︶
 </details>
 </th></table>
 <br>
- ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎ 
-Work in progress.. come back later
+ ‎  ‎  <p align="right">
+ <img src="https://github.com/user-attachments/assets/865749ec-f654-4d80-9d69-71d63e6d7d3e" <width="162" height="162"/> 
+   <br>
+‎<p align="center">  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎ 
+<img src="https://github.com/user-attachments/assets/771c4bc1-fb48-42dc-ac38-97cbcba47a5d" />
+<br>
+ 
+
 
 <br>
 <br>
