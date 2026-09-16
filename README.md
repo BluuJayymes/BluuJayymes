@@ -2,8 +2,9 @@
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/46b6877f-1603-4e4c-96be-52484a472c85"/>
-
 <br>
+  
+
 <br>
 <p align="left">
   <img src="https://github.com/user-attachments/assets/2433aa11-bd78-4f50-a2f7-7ef2ce27689d"  <width="162" height="162"/>
@@ -68,8 +69,9 @@
 <br>
 <br>
 <br>
-
-
+<p align="center">
+  
+![](https://komarev.com/ghpvc/?username=BluuJayymes&color=780606&style=flat-square&label=Heart+Beats)
 
                              
 
