@@ -5,14 +5,13 @@
 <br>
   
   
-  ![](https://komarev.com/ghpvc/?username=BluuJayymes&color=780606&style=flat-square&label=Heart+Beats)
 <br>
 
 
 <table align="center"><th>
-
+  
+![](https://komarev.com/ghpvc/?username=BluuJayymes&color=780606&style=flat-square&label=Heart+Beats)
 </details>
- <br>
 My name is Jameson, but I go by many nicknames <br>
 $\color{#6B6B6B}\textsf{ e.g., James, Jayce, Jay, and Jam!}$
 $\color{#3D3D3D}\textsf{do not call me "JayJay"}$
@@ -48,16 +47,20 @@ $\color{#3D3D3D}\textsf{do not call me "JayJay"}$
     <br>●Preds/MAPS
     <br>●Inconsiderate people
     <br>
-    <br>●LSP 
     <br>●Wincest 
+    <br>●LSP 
+    <br> ︶︶︶︶︶
+</details>
+
+ <details><summary><sup><sub> [ </sub></sup> iwec <sup><sub> ]</sub></sup></summary>
+       <p align="left">
+    <br>  ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
     <br>●Hazbin Hotel
     <br>●Helluva Boss
     <br>●ThatMob Fandom
     <br>●DSMP
     <br>●MHA
-    <br> 
     <br> ︶︶︶︶︶
-</details>
 </th></table>
 <br>
 
