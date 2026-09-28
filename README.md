@@ -4,8 +4,10 @@
 <img src="https://github.com/user-attachments/assets/46b6877f-1603-4e4c-96be-52484a472c85"/>
 <br>
   
-
+  
+  ![](https://komarev.com/ghpvc/?username=BluuJayymes&color=780606&style=flat-square&label=Heart+Beats)
 <br>
+
 
 <table align="center"><th>
 
@@ -73,7 +75,7 @@ $\color{#3D3D3D}\textsf{do not call me "JayJay"}$
 <br>
 <p align="center">
   
-![](https://komarev.com/ghpvc/?username=BluuJayymes&color=780606&style=flat-square&label=Heart+Beats)
+
 
                              
 
