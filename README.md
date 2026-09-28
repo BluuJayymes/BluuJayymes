@@ -6,9 +6,7 @@
   
 
 <br>
-<p align="left">
-  <img src="https://github.com/user-attachments/assets/2433aa11-bd78-4f50-a2f7-7ef2ce27689d"  <width="162" height="162"/>
- 
+
 <table align="center"><th>
 
 </details>
@@ -55,8 +53,7 @@
 </details>
 </th></table>
 <br>
- ‎  ‎  <p align="right">
- <img src="https://github.com/user-attachments/assets/865749ec-f654-4d80-9d69-71d63e6d7d3e" <width="162" height="162"/> 
+
    <br>
 ‎<p align="center">  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎ 
 <img src="https://github.com/user-attachments/assets/771c4bc1-fb48-42dc-ac38-97cbcba47a5d" />
