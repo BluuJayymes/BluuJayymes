@@ -10,18 +10,23 @@
 <table align="center"><th>
 
 </details>
+ <br>
+My name is Jameson, but I go by many nicknames <br>
+$\color{#6B6B6B}\textsf{ e.g., James, Jayce, Jay, and Jam!}$
+$\color{#3D3D3D}\textsf{do not call me "JayJay"}$
 <details><summary><sup><sub> ( </sub></sup> CLICK ME <sup><sub> )</sub></sup></summary>
 
   <details><summary><sup><sub> [ </sub></sup> byi <sup><sub> ]</sub></sup></summary>
   
   <p align= "left">
-  ✦•······················•✦•······················•✦<br>
+  ✦•······················•✦•······················•✦
+  <br>
   <br>● I recommend you check out my strawpage(s) for more detailed info before you interact
   <br>● If you yume with any of my kins -iwc
   <br>● -14 19+ -iwec 
-  <br> ᴋɪᴅꜱ ᴍᴀᴋᴇ ᴍᴇ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ. - ᴀᴅᴜʟᴛꜱ, ᴅᴏɴ'ᴛ ʙᴇ ᴡᴇɪʀᴅ.
-  <br>● I free block; if you're blocked, then you put me off in some way
-  <br> ᴅᴏɴ'ᴛ ʜᴀʀᴀꜱꜱ ᴍʏ ꜰʀɪᴇɴᴅꜱ ᴛᴏ ꜰɪɴᴅ ᴏᴜᴛ ᴡʜʏ ʏᴏᴜ'ʀᴇ ʙʟᴏᴄᴋᴇᴅ
+  <br>● I free block
+  <br>● I'm anti-harassment, but I do not associate myself with the profic or darkship community.
+  <br> As a follow-up: I'm still allowed to have a dni list and prefer that certain people don't interact with me, I just wont harrass people who fall under it. DNI lists go BOTH ways. Take this as you will.
   <br>
   <br> ✦•······················•✦•······················•✦
   <br>
