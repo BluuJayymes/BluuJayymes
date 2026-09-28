@@ -23,8 +23,6 @@ $\color{#3D3D3D}\textsf{do not call me "JayJay"}$
   ✦•······················•✦•······················•✦
   <br>
   <br>● I recommend you check out my strawpage(s) for more detailed info before you interact
-  <br>● If you yume with any of my kins -iwc
-  <br>● -14 19+ -iwec 
   <br>● I free block
   <br>● I'm anti-harassment, but I do not associate myself with the profic or darkship community.
   <br> As a follow-up: I'm still allowed to have a dni list and prefer that certain people don't interact with me, I just wont harrass people who fall under it. DNI lists go BOTH ways. Take this as you will.
@@ -60,6 +58,8 @@ $\color{#3D3D3D}\textsf{do not call me "JayJay"}$
     <br>●ThatMob Fandom
     <br>●DSMP
     <br>●MHA
+    <br>● If you yume with any of my kins 
+    <br>● -14 19+ 
     <br> ︶︶︶︶︶
 </th></table>
 <br>
