@@ -12,12 +12,21 @@
   
 ![](https://komarev.com/ghpvc/?username=BluuJayymes&color=780606&style=flat-square&label=Heart+Beats)
 </details>
-My name is Jameson, but I go by many nicknames <br>
-$\color{#6B6B6B}\textsf{ e.g., James, Jayce, Jay, and Jam!}$
-$\color{#3D3D3D}\textsf{do not call me "JayJay"}$
-<details><summary><sup><sub> ( </sub></sup> CLICK ME <sup><sub> )</sub></sup></summary>
+$\color{#FF2C2C}\textsf{My name is Jameson, but I go by many nicknames}$ <br>
+$\color{#C70000}\textsf{ e.g., James, Jayce, Jay, and Jam!}$
+$\color{#640000}\textsf{do not call me "JayJay"}$
+<br>
+<br> $\color{#FF2C2C}\textsf{I'm 7teen}$ $\color{#C70000}\textsf{09.27.09}$ <br> $\color{#FF2C2C}\textsf{and I'm taken}$ $\color{#C70000}\textsf{01.01.25}$ <br>
+<br>
+</th></table>
+<br>
 
-  <details><summary><sup><sub> [ </sub></sup> byi <sup><sub> ]</sub></sup></summary>
+<table align="center"><th>
+
+
+<details><summary><sup><sub> ! </sub></sup> $\color{#FF2C2C}\textsf{Click here before you interact with me}$ <sup><sub> ! </sub></sup></summary>
+
+  <details><summary><sup><sub> [ </sub></sup> $\color{#C70000}\textsf{byi}$ <sup><sub> ]</sub></sup></summary>
   
   <p align= "left">
   ✦•······················•✦•······················•✦
@@ -25,13 +34,13 @@ $\color{#3D3D3D}\textsf{do not call me "JayJay"}$
   <br>● I recommend you check out my strawpage(s) for more detailed info before you interact
   <br>● I free block
   <br>● I'm anti-harassment, but I do not associate myself with the profic or darkship community.
-  <br> As a follow-up: I'm still allowed to have a dni list and prefer that certain people don't interact with me, I just wont harrass people who fall under it. DNI lists go BOTH ways. Take this as you will.
+  <br> As a follow-up: I'm still allowed to have a dni list and prefer that certain people don't interact with me; I just won't harass people who fall under it. DNI lists go BOTH ways. Take this as you will.
   <br>
   <br> ✦•······················•✦•······················•✦
   <br>
 </details>
   
-  <details><summary><sup><sub> [ </sub></sup> dni <sup><sub> ]</sub></sup></summary>
+  <details><summary><sup><sub> [ </sub></sup> $\color{#C70000}\textsf{dni}$ <sup><sub> ]</sub></sup></summary>
       <p align="left">
     <br>  ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
     <br>●Homophobes
@@ -50,7 +59,7 @@ $\color{#3D3D3D}\textsf{do not call me "JayJay"}$
     <br> ︶︶︶︶︶
 </details>
 
- <details><summary><sup><sub> [ </sub></sup> iwec <sup><sub> ]</sub></sup></summary>
+ <details><summary><sup><sub> [ </sub></sup> $\color{#C70000}\textsf{iwec}$ <sup><sub> ]</sub></sup></summary>
        <p align="left">
     <br>  ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
     <br>●Hazbin Hotel
