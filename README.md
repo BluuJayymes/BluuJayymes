@@ -43,32 +43,34 @@ $\color{#640000}\textsf{do not call me "JayJay"}$
   <details><summary><sup><sub> [ </sub></sup> $\color{#C70000}\textsf{dni}$ <sup><sub> ]</sub></sup></summary>
       <p align="left">
     <br>  ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
-    <br>●Homophobes
-    <br>●Transphobes
-    <br>●Transmeds
-    <br>●Radq
-    <br>●Maga/Ice supporters
-    <br>●Epstien trolls
-    <br>●Nazi trolls
-    <br>●Racists
-    <br>●Preds/MAPS
-    <br>●Inconsiderate people
+    <br>● Homophobes
+    <br>● Transphobes
+    <br>● Transmeds
+    <br>● Radq
+    <br>● Maga/Ice supporters
+    <br>● Epstien trolls
+    <br>● Nazi trolls
+    <br>● Racists
+    <br>● Preds/MAPS
+    <br>● Inconsiderate people
     <br>
-    <br>●Wincest 
-    <br>●LSP 
+    <br>● Wincest 
+    <br>● LSP 
     <br> ︶︶︶︶︶
 </details>
 
- <details><summary><sup><sub> [ </sub></sup> $\color{#C70000}\textsf{iwec}$ <sup><sub> ]</sub></sup></summary>
+ <details><summary><sup><sub> [ </sub></sup> $\color{#C70000}\textsf{iwc}$ <sup><sub> ]</sub></sup></summary>
        <p align="left">
     <br>  ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
-    <br>●Hazbin Hotel
-    <br>●Helluva Boss
-    <br>●ThatMob Fandom
-    <br>●DSMP
-    <br>●MHA
+    <br>● Hazbin Hotel
+    <br>● Helluva Boss
+    <br>● ThatMob Fandom
+    <br>● DSMP
+    <br>● MHA
     <br>● If you yume with any of my kins 
     <br>● -14 19+ 
+    <br>● Doubles 
+    <br> 
     <br> ︶︶︶︶︶
 </th></table>
 <br>
