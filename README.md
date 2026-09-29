@@ -17,6 +17,9 @@ $\color{#C70000}\textsf{ e.g., James, Jayce, Jay, and Jam!}$
 $\color{#640000}\textsf{do not call me "JayJay"}$
 <br>
 <br> $\color{#FF2C2C}\textsf{I'm 7teen}$ $\color{#C70000}\textsf{09.27.09}$ <br> $\color{#FF2C2C}\textsf{and I'm taken}$ $\color{#C70000}\textsf{01.01.25}$ <br>
+$\color{#FF2C2C}\textsf{ISTP-T | 8w9}$ <br>
+$\color{#FF2C2C}\textsf{He/Him}$ $\color{#C70000}\textsf{They/Them}$ <br>
+$\color{#640000}\textsf{!Masc Terms Only!}$
 <br>
 </th></table>
 <br>
