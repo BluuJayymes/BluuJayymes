@@ -77,8 +77,7 @@ $\color{#640000}\textsf{!Masc Terms Only!}$
     <br> ︶︶︶︶︶
 </th></table>
 <br>
-   <p align="center">
-  <a href="https://linktr.ee/BluuJayymes">​ʟɪɴᴋᴛʀᴇᴇ​</a> 
+
    <br>
 ‎<p align="center">  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎ 
 <img src="https://github.com/user-attachments/assets/771c4bc1-fb48-42dc-ac38-97cbcba47a5d" />
