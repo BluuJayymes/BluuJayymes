@@ -77,13 +77,14 @@ $\color{#640000}\textsf{!Masc Terms Only!}$
     <br> ︶︶︶︶︶
 </th></table>
 <br>
-
+   <p align="center">
+  <a href="https://linktr.ee/BluuJayymes">​ʟɪɴᴋᴛʀᴇᴇ​</a> 
    <br>
 ‎<p align="center">  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎ 
 <img src="https://github.com/user-attachments/assets/771c4bc1-fb48-42dc-ac38-97cbcba47a5d" />
 <br>
- 
 
+<br>
 <img width="350" height="20" alt="tumblr_52d886c072870a6b16cbf5f5ee3e51c9_9cc17795_400" src="https://github.com/user-attachments/assets/cafc5dd3-fe44-4d77-9b14-3a7ba77d53c7" />
 <img width="350" height="19" alt="tumblr_c6a29fb123dae17d705477d4b31f4801_b232992b_400" src="https://github.com/user-attachments/assets/7079c14f-c5fc-48e3-84c2-6b1e42a3d62e" />
 
