@@ -37,7 +37,7 @@ $\color{#640000}\textsf{!Masc Terms Only!}$
   <br>● I recommend you check out my strawpage(s) for more detailed info before you interact
   <br>● I free block
   <br>● I'm not the most social all the time, and I can get a little antsy if I feel someone's tone is off, so I apologize if I stop talking or cut a convo short.
-  <br>● I've been diagnosed with Social Anxiety and have strongly suspected ADHD 
+  <br>● I've been diagnosed with Social Anxiety and Depression, and have strongly suspected ADHD 
   <br>● I tend to follow people's GitHubs if I think their ponies are pretty; feel free to block me if I'm unwanted
   <br>● On the topic of Blocking, PLEASE tell me if I'm covering someone; I could have them blocked.
   <br>● I'm anti-harassment, but I do not associate myself with the profic or darkship community.
