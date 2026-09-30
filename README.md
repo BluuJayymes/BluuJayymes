@@ -56,6 +56,7 @@ $\color{#640000}\textsf{!Masc Terms Only!}$
     <br>● Racists
     <br>● Preds/MAPS
     <br>● Inconsiderate people
+    <br>● TCC
     <br>
     <br>● Wincest 
     <br>● LSP 
