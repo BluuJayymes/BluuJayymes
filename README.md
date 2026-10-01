@@ -32,15 +32,18 @@ $\color{#640000}\textsf{!Masc Terms Only!}$
   <details><summary><sup><sub> [ </sub></sup> $\color{#C70000}\textsf{byi}$ <sup><sub> ]</sub></sup></summary>
   
   <p align= "left">
+    I update this whenever I think about it, things may change
+    <br>
   ✦•······················•✦•······················•✦
   <br>
   <br>● I recommend you check out my strawpage(s) for more detailed info before you interact
   <br>● I free block
+  <br>● I'm a fictkin and I kin very, very heavily, and I'm not fond of doubles. I won't be rude, but please iwc when talking to me.
   <br>● I'm not the most social all the time, and I can get a little antsy if I feel someone's tone is off, so I apologize if I stop talking or cut a convo short.
   <br>● I've been diagnosed with Social Anxiety and Depression, and have strongly suspected ADHD 
   <br>● I tend to follow people's GitHubs if I think their ponies are pretty; feel free to block me if I'm unwanted
   <br>● On the topic of Blocking, PLEASE tell me if I'm covering someone; I could have them blocked.
-  <br>● I'm anti-harassment, but I do not associate myself with the profic or darkship community.
+  <br>● I'm anti-harassment; I find it ridiculous, but I do not associate myself with the profic or darkship community.
   <br> As a follow-up: I'm still allowed to have a dni list and prefer that certain people don't interact with me; I just won't harass people who fall under it. DNI lists go BOTH ways. Take this as you will.
 <br>
   <br> ✦•······················•✦•······················•✦
@@ -49,6 +52,8 @@ $\color{#640000}\textsf{!Masc Terms Only!}$
   
   <details><summary><sup><sub> [ </sub></sup> $\color{#C70000}\textsf{dni}$ <sup><sub> ]</sub></sup></summary>
       <p align="left">
+            I update this whenever I think about it, things may change
+    <br>
     <br>  ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
     <br>● Homophobes
     <br>● Transphobes
@@ -69,6 +74,8 @@ $\color{#640000}\textsf{!Masc Terms Only!}$
 
  <details><summary><sup><sub> [ </sub></sup> $\color{#C70000}\textsf{iwc}$ <sup><sub> ]</sub></sup></summary>
        <p align="left">
+             I update this whenever I think about it, things may change
+    <br>
     <br>  ‿̩͙‿੭　∔⠀ৎ‿̩͙‿ 
     <br>● Hazbin Hotel
     <br>● Helluva Boss
