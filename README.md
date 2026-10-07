@@ -39,6 +39,7 @@ $\color{#640000}\textsf{!Masc Terms Only!}$
   <br>● I recommend you check out my strawpage(s) for more detailed info before you interact
   <br>● I free block
   <br>● I'm a fictkin and I kin very, very heavily, and I'm not fond of doubles. I won't be rude, but please iwc when talking to me.
+  <br>● I don't mind if you use my kin names for me; in fact, it's greatly encouraged
   <br>● I'm not the most social all the time, and I can get a little antsy if I feel someone's tone is off, so I apologize if I stop talking or cut a convo short.
   <br>● I've been diagnosed with Social Anxiety and Depression, and have strongly suspected ADHD 
   <br>● I tend to follow people's GitHubs if I think their ponies are pretty; feel free to block me if I'm unwanted
