@@ -1,25 +1,26 @@
 
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/46b6877f-1603-4e4c-96be-52484a472c85"/>
-<br>
-  
-  
+<img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/> <img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/>
+<img width="1279" height="128" alt="Tumblr-l-239128259770132" src="https://github.com/user-attachments/assets/6a2f12f8-c50a-4e8f-9143-4bf385ffdc98" />‎  ‎ 
+<img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/> <img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/>
 <br>
 
-
+<br>
+<br>
+<br>
 <table align="center"><th>
   
-![](https://komarev.com/ghpvc/?username=BluuJayymes&color=780606&style=flat-square&label=Heart+Beats)
+![](https://komarev.com/ghpvc/?username=BluuJayymes&color=00e8fd&style=flat-square&label=Bubbles)
 </details>
-$\color{#FF2C2C}\textsf{My name is Jameson, but I go by many nicknames}$ <br>
-$\color{#C70000}\textsf{ e.g., James, Jayce, Jay, and Jam!}$
-$\color{#640000}\textsf{do not call me "JayJay"}$
+$\color{#00e8fd}\textsf{My name is Jameson, but I go by many nicknames}$ <br>
+$\color{#006f8c}\textsf{ e.g., James, Jayce, Jay, and Jam!}$
+$\color{#003b46}\textsf{do not call me "JayJay"}$
 <br>
-<br> $\color{#FF2C2C}\textsf{I'm 7teen}$ $\color{#C70000}\textsf{09.27.09}$ <br> $\color{#FF2C2C}\textsf{and I'm taken}$ $\color{#C70000}\textsf{01.01.25}$ <br>
-$\color{#FF2C2C}\textsf{ISTP-T | 8w9}$ <br>
-$\color{#FF2C2C}\textsf{He/Him}$ $\color{#C70000}\textsf{They/Them}$ <br>
-$\color{#640000}\textsf{!Masc Terms Only!}$
+<br> $\color{#00e8fd}\textsf{I'm 7teen}$ $\color{#006f8c}\textsf{09.27.09}$ <br> $\color{#00e8fd}\textsf{and I'm taken}$ $\color{#006f8c}\textsf{01.01.25}$ <br>
+$\color{#00e8fd}\textsf{ISTP-T | 8w9}$ <br>
+$\color{#00e8fd}\textsf{He/Him}$ $\color{#006f8c}\textsf{They/Them}$ <br>
+$\color{#003b46}\textsf{!Masc Terms Only!}$
 <br>
 </th></table>
 <br>
@@ -27,9 +28,9 @@ $\color{#640000}\textsf{!Masc Terms Only!}$
 <table align="center"><th>
 
 
-<details><summary><sup><sub> ! </sub></sup> $\color{#FF2C2C}\textsf{Click here before you interact with me}$ <sup><sub> ! </sub></sup></summary>
+<details><summary><sup><sub> ! </sub></sup> $\color{#00e8fd}\textsf{Click here before you interact with me}$ <sup><sub> ! </sub></sup></summary>
 
-  <details><summary><sup><sub> [ </sub></sup> $\color{#C70000}\textsf{byi}$ <sup><sub> ]</sub></sup></summary>
+  <details><summary><sup><sub> [ </sub></sup> $\color{#006f8c}\textsf{byi}$ <sup><sub> ]</sub></sup></summary>
   
   <p align= "left">
     I update this whenever I think about it, things may change
@@ -51,7 +52,7 @@ $\color{#640000}\textsf{!Masc Terms Only!}$
   <br>
 </details>
   
-  <details><summary><sup><sub> [ </sub></sup> $\color{#C70000}\textsf{dni}$ <sup><sub> ]</sub></sup></summary>
+  <details><summary><sup><sub> [ </sub></sup> $\color{#006f8c}\textsf{dni}$ <sup><sub> ]</sub></sup></summary>
       <p align="left">
             I update this whenever I think about it, things may change
     <br>
@@ -73,7 +74,7 @@ $\color{#640000}\textsf{!Masc Terms Only!}$
     <br> ︶︶︶︶︶
 </details>
 
- <details><summary><sup><sub> [ </sub></sup> $\color{#C70000}\textsf{iwc}$ <sup><sub> ]</sub></sup></summary>
+ <details><summary><sup><sub> [ </sub></sup> $\color{#006f8c}\textsf{iwc}$ <sup><sub> ]</sub></sup></summary>
        <p align="left">
              I update this whenever I think about it, things may change
     <br>
@@ -89,11 +90,11 @@ $\color{#640000}\textsf{!Masc Terms Only!}$
     <br> 
     <br> ︶︶︶︶︶
 </th></table>
-<br>
 
-   <br>
-‎<p align="center">  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎ 
-<img src="https://github.com/user-attachments/assets/771c4bc1-fb48-42dc-ac38-97cbcba47a5d" />
+
+‎<p align="center">
+<img width="1279" src="https://github.com/user-attachments/assets/cfa9b65c-8738-4a1c-94f6-17d8d560a3ae" /><img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/><img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/>
+ ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎ 
 <br>
 
 <br>
