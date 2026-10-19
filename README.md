@@ -22,7 +22,8 @@ $\color{#003b46}\textsf{!Masc Terms Only!}$
 </th></table>
 <br>
 <p align="center">
-<img width="835" height="335" alt="image" src="https://github.com/user-attachments/assets/bb6b08b2-892d-4ebc-a2b0-526848639d2f" />
+<img width="836" height="333" alt="image" src="https://github.com/user-attachments/assets/6b8c4522-af91-4617-9508-46dfbb04cf66" />
+
 <br>
 <br>
 
