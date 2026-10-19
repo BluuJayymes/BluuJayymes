@@ -14,7 +14,7 @@
 ![](https://komarev.com/ghpvc/?username=BluuJayymes&color=00e8fd&style=flat-square&label=Bubbles)
 </details>
 $\color{#00e8fd}\textsf{My name is Jameson, but I go by many nicknames}$ <br>
-$\color{#006f8c}\textsf{ e.g., James, Jayce, Jay, and Jam!}$
+$\color{#006f8c}\textsf{ e.g., James, Jay, and Jam!}$
 $\color{#003b46}\textsf{do not call me "JayJay"}$
 <br>
 <br> $\color{#00e8fd}\textsf{I'm 7teen}$ $\color{#006f8c}\textsf{09.27.09}$ <br> $\color{#00e8fd}\textsf{and I'm taken}$ $\color{#006f8c}\textsf{01.01.25}$ <br>
