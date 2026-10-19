@@ -5,16 +5,13 @@
 <img width="1279" height="128" alt="Tumblr-l-239128259770132" src="https://github.com/user-attachments/assets/6a2f12f8-c50a-4e8f-9143-4bf385ffdc98" />‎  ‎ 
 <img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/> <img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/>
 <br>
-
-<br>
-<br>
 <br>
 <table align="center"><th>
   
 ![](https://komarev.com/ghpvc/?username=BluuJayymes&color=00e8fd&style=flat-square&label=Bubbles)
 </details>
 $\color{#00e8fd}\textsf{My name is Jameson, but I go by many nicknames}$ <br>
-$\color{#006f8c}\textsf{ e.g., James, Jay, and Jam!}$
+$\color{#006f8c}\textsf{ e.g., James, JAY, and Jam!}$
 $\color{#003b46}\textsf{do not call me "JayJay"}$
 <br>
 <br> $\color{#00e8fd}\textsf{I'm 7teen}$ $\color{#006f8c}\textsf{09.27.09}$ <br> $\color{#00e8fd}\textsf{and I'm taken}$ $\color{#006f8c}\textsf{01.01.25}$ <br>
@@ -23,6 +20,10 @@ $\color{#00e8fd}\textsf{He/Him}$ $\color{#006f8c}\textsf{They/Them}$ <br>
 $\color{#003b46}\textsf{!Masc Terms Only!}$
 <br>
 </th></table>
+<br>
+<p align="center">
+<img width="835" height="335" alt="image" src="https://github.com/user-attachments/assets/bb6b08b2-892d-4ebc-a2b0-526848639d2f" />
+<br>
 <br>
 
 <table align="center"><th>
