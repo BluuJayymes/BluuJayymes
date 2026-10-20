@@ -17,14 +17,10 @@ $\color{#00e8fd}\textsf{He/Him}$ $\color{#006f8c}\textsf{They/Them}$ <br>
 $\color{#003b46}\textsf{!Masc Terms Only!}$
 <br>
 </th></table>
-<br>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/> <img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/>
 
-
-<br>
-<br>
 
 <table align="center"><th>
 
