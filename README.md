@@ -21,8 +21,7 @@ $\color{#003b46}\textsf{!Masc Terms Only!}$
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/> <img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/>
-<img width="1279" height="128" alt="Tumblr-l-239128259770132" src="https://github.com/user-attachments/assets/6a2f12f8-c50a-4e8f-9143-4bf385ffdc98" />‎  ‎ 
-<img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/> <img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/>
+<img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/> <img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/><img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/><img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/>
 
 <br>
 <br>
@@ -97,8 +96,8 @@ $\color{#003b46}\textsf{!Masc Terms Only!}$
 <br> 
 
 ‎<p align="center">
-<img width="1279" src="https://github.com/user-attachments/assets/cfa9b65c-8738-4a1c-94f6-17d8d560a3ae" /><img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/><img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/>
- ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎ 
+<img width="1279" src="https://github.com/user-attachments/assets/cfa9b65c-8738-4a1c-94f6-17d8d560a3ae" />
+‎  ‎ 
 <br>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
