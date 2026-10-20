@@ -19,8 +19,7 @@ $\color{#003b46}\textsf{!Masc Terms Only!}$
 </th></table>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/> <img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/>
-
+<img src="https://github.com/user-attachments/assets/b9dc0f6d-fc57-494b-a0b6-acff402bf8dd"/> 
 
 <table align="center"><th>
 
